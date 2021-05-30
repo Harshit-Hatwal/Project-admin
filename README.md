@@ -1,3 +1,3 @@
 # Project-admin repository 
 
-Here is repository  pls kantribute.. 
+Here is repository  please  contribute 
